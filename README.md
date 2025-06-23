@@ -1,0 +1,1 @@
+# shuma7.github.io
